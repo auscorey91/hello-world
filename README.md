@@ -2,4 +2,4 @@
 
 Hey people
 
-My name is Corye and Im a flooring installer looking for work.
+My name is Corey and Im a flooring installer looking for work.
